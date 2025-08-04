@@ -29,4 +29,6 @@ If you intend to explore everything this darknet marketplace provides, it's cruc
 
 
 
-Update:  Thursday 24 July 2025 url is now reachable online
+
+
+Update:  04.08.2025 url is live and reachable
