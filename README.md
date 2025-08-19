@@ -33,4 +33,6 @@ If you intend to explore everything this darknet marketplace provides, it's cruc
 
 
 
-Update:  08/13/2025 Link is now active
+
+
+Update:  19.08.2025
