@@ -35,4 +35,6 @@ If you intend to explore everything this darknet marketplace provides, it's cruc
 
 
 
-Update:  19.08.2025
+
+
+Update:  Saturday 23 August 2025 Fixed broken url, now active
